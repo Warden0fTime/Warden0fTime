@@ -18,7 +18,7 @@ Aether Gazer, **Honkai Impact 3rd**, Honkai: Star Rail, **ARKNIGHTS**, Yume Nikk
 
 +*:ꔫ:*﹤ **__DNI & EXTRA.___** ﹥*:ꔫ:*+ﾟ
 
-Listen, yeah, I get it, Otto has done a lot of bad things and whatever. But **DON'T** bother me just because I like him or something, that doesn't mean that I agree with what he had done or whatsoever. In another words, just don't interact if you're here to bother me, dude. I'm here to chill. __Oh yeah, Okegom skins are fine, fandom is not.__
+Doesn't have any at all, just don't bother me and we're good. I may look a little __intimidating__ but I promise I'm a good person. Either way, I don't bite, feel free to __INT__. I may be a little energetic too, so keep that in mind, the "cool" facade is just for fancies in the end. __Personally__, I don't like the __Okegom__ fandom. __Skins__ are __fine__, __fandom__ is __not__.
 
 ˚₊· ͟͟͞͞➳❥ **Cuddle + Hide is fine, aslong I'm not with anyone. If I am, ask them first, not me.** ~ **I'm a very straightforward person, so please, be honest with me, if I'm bothering you or not. It will be better for both of us, so I'll know how to manage better.** ┊͙ ˘͈ᵕ˘͈
 
