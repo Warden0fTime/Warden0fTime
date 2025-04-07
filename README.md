@@ -11,11 +11,9 @@
 
 ### +*:ꔫ:*﹤ **__INTERESTS & INT.___** ﹥*:ꔫ:*+ﾟ
 
-✶ *__HOLOLIVE__, Aether Gazer, Strinova, __NGO__, __Limbus Company & LoR__, Forsaken, HOYOverse, __VSHOJO__, Undertale, __Touhou__, Nijisanji, __PJSEKAI__, __FNAF__, __SONIC__, __Muse Dash__, __Arknights__, Azur Lane, Blue Archive...* [**I**]
+✶ *__HOLOLIVE__, Aether Gazer, Strinova, __NGO__, __Limbus Company & LoR__, Forsaken, HOYOverse, __VSHOJO__, Undertale, __Touhou__, Nijisanji, __PJSEKAI__, __FNAF__, __SONIC__, __Muse Dash__, __Arknights__, Azur Lane, Blue Archive...*
 
-♪ *TTIGRAAS, To Your Eternity, __Date a Live__, __Umineko__, Solo Leveling, BLEACH, One Piece, Shikamori-san, __Angels of Death__, Death Note, __Fate__...* [**I**]
-
-ִֶָ🦇་༘࿐ *__Ouro Kronii__, __Watson Amelia__, Kevin Kaslana, __Otto Apocalypse__, __Asahina Mafuyu__, __Suika Ibuki__* [**K**]
+♪ *TTIGRAAS, To Your Eternity, __Date a Live__, __Umineko__, Solo Leveling, BLEACH, One Piece, Shikamori-san, __Angels of Death__, Death Note, __Fate__...*
 
 —— 💎 _**I am a very introverted person and tend not to be social in the slightest. Please expect some awkwardness the first time you talk to me, as I'm not used to new people talking to me. Don't let that demotivate you though; you can approach me and have a chat, I personally don't mind it at all, I'm just a bit socially awkward.**_ ⚙️
 
