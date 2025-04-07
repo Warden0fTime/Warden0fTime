@@ -1,25 +1,30 @@
-### ABOUT ME ☂️.
+## ——— ABOUT ME ——— ☂️
 
-ೃ⁀➷ __You may call me NOIR... However, Finality is also a good choice.__ ⋆·˚ ༘ *
+ೃ⁀➷ _You may call me ***Venus*** or ***Noir***._ ⋆·˚ ༘ *
 
-*ੈ✩‧₊˚ __I'm a very friendly and chatty person, mostly open to any type of friendships. I don't really care for problems that aren't mine, so, don't drag drama over me and my friends. If you're gonna do that, just don't interact at all.__ ⋆.ೃ࿔*:･
+*ੈ✩‧₊˚ __I tend to be really friendly and easy-going. I'm also a very understanding person, if you ever have a problem with me, we can always talk about it.__ ⋆.ೃ࿔*:･
 
-⋆·˚ ༘ * __Kevin Kaslana__ *and* __Otto Apocalypse__ are my favorite characters, and I may do act like them a little bit. **However** that does not mean that I'm entirely like them, so don't go straight judging by that. ˏˋ°•*⁀➷
+── _The world is at **chaos**, it is neither **fair** nor **sensible**. It wrong **heroes** and breeds **scum**. It is a rife with ugliness without a trace of **beauty**._ ✦
 
-⍣ ೋ *The world is at **chaos** , it is neither **fair** nor **sensible**. It wrong **heroes** and breeds **scum**. It is rife with ugliness without a trace of **beauty**.* ‗ ❍ 
+![image](https://github.com/user-attachments/assets/d5491e20-b1c4-44ea-a3ac-b656829cca1b)
 
 
-![kevin-kaslana](https://github.com/typeveenus/typeveenus/assets/153479602/0e121905-57aa-4097-8489-62e04e2093d5)
+### +*:ꔫ:*﹤ **__INTERESTS & INT.___** ﹥*:ꔫ:*+ﾟ
 
-+*:ꔫ:*﹤ **__INTERESTS & INT.___** ﹥*:ꔫ:*+ﾟ
+✶ *__HOLOLIVE__, Aether Gazer, Strinova, __NGO__, __Limbus Company & LoR__, Forsaken, __HOYO__verse, __VSHOJO__, Undertale, __Touhou__, Nijisanji, __PJSEKAI__, __FNAF__, __SONIC__, __Muse Dash__, __Arknights__, Azur Lane, Blue Archive...* [**I**]
 
-Aether Gazer, **Honkai Impact 3rd**, Honkai: Star Rail, **ARKNIGHTS**, Yume Nikki & a lot more. Just ask me, I'll probably know or whatever.
-ੈ✩‧₊˚ __Please interact if you really like HONKAI or any of the games above. Either way, I love chatting aswell, so, if you want someone to talk with, just poke me or something. I'll gladly entertain you somehow.__ ✧.*
+♪ *TTIGRAAS, To Your Eternity, __Date a Live__, __Umineko__, Solo Leveling, BLEACH, One Piece, Shikamori-san, __Angels of Death__, Death Note, __Fate__...* [**I**]
 
-+*:ꔫ:*﹤ **__DNI & EXTRA.___** ﹥*:ꔫ:*+ﾟ
+ִֶָ🦇་༘࿐ *__Ouro Kronii__, __Watson Amelia__, Kevin Kaslana, __Otto Apocalypse__, __Asahina Mafuyu__, __Suika Ibuki__* [**K**]
 
-Doesn't have any at all, just don't be rude and we're good. I may look a little __intimidating__ but I promise I'm a good person. Either way, I don't bite, feel free to __INT__. I may be a little energetic too, so keep that in mind, the "cool" facade is just for fancies in the end. __Personally__, I don't like the __Okegom__ fandom. __Skins__ are __fine__, __fandom__ is __not__.
+—— 💎 _**I am a very introverted person and tend not to be social in the slightest. Please expect some awkwardness the first time you talk to me, as I'm not used to new people talking to me. Don't let that demotivate you though; you can approach me and have a chat, I personally don't mind it at all, I'm just a bit socially awkward._ ⚙️
 
-˚₊· ͟͟͞͞➳❥ **Cuddle + Hide is fine, aslong I'm not with anyone. If I am, ask them first, not me.** ~ **I'm a very straightforward person, so please, be honest with me, if I'm bothering you or not. It will be better for both of us, so I'll know how to manage better.** ┊͙ ˘͈ᵕ˘͈
+### +*:ꔫ:*﹤ **__DNI & EXTRA.___** ﹥*:ꔫ:*+ﾟ
 
-![kevin-kaslana](https://github.com/typeveenus/typeveenus/assets/153479602/c3ce546b-5d01-474d-a8bb-73c88fce5484)
+⚠️ _Basic **DNI** Criteria._
+
+🔎 _If you ever have any problems with a friend of mine, I'd like to **kindly** remind you that it's between **YOU** and **THEM**. I have nothing to do with your tea, so don't drag your little show around me. I **despise** arguments and discussions, even more when it involves any friend of mine. While I understand you might be **"angry"** or **"annoyed"**, I'm not the right person to approach. You can solve it yourself._
+
+⏰ _**Cuddle** + **Hide** it's fine but when I'm around my friends please ask them instead. ._
+###  ——— "Someday" is a disease that will take your dreams to the grave with you. ——— 
+![Kronii-Ouro](https://github.com/user-attachments/assets/35888cf6-75fb-4476-ab49-35479284c88d)
