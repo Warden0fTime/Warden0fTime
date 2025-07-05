@@ -6,13 +6,13 @@
 
 ─ _“ It's [you](https:github.com/CiviIizations) and **me**. ” ✦_
 
-<img src="https://github.com/user-attachments/assets/b63e2dfd-bbaa-4c41-86c7-94b7d2fb8da4" width="650" height="350" />
+<img src="https://github.com/user-attachments/assets/b63e2dfd-bbaa-4c41-86c7-94b7d2fb8da4" width="550" height="350" />
 
 
 
 
 ### ﹤OVERALL + BYI & DNI﹥
-—— ⚙️ ,, _There's a lot of games that I like, lots of animes that I'm absolutely in-love with. Just ask me, if you see me using a certain cosplay of some certain character of a fandom, it's very likely that I'm a member myself. Give it a shot, not too hard. For music taste; I listen to anything that sounds nice I guess._
+— ⚙️ ,, _There's a lot of games that I like, lots of animes that I'm absolutely in-love with. Just ask me, if you see me using a certain cosplay of some certain character of a fandom, it's very likely that I'm a member myself. Give it a shot, not too hard. For music taste; I listen to anything that sounds nice I guess._
 
 — ⌛ ,, _I'm a **very introverted** person and tend not to be very verbal. I enjoy a lot a **mutual-silence and short-talks from time to time**; I can and will have **sudden mood changes depending on the day or whatever is going on with my life**. One thing to **keep in mind** is that I often **match your energy**, whenether that's a good or bad thing it **depends entirely on you**. If you're looking for a friend who's usually just on their own n'will listen to you whenever you need that someone, I'll gladly say that I'm exactly that type of friend. **Keep in mind** that I also **do not sugarcoat stuff**, I **hate dishonesty** and I'll be **very much sincere** regardless of what's the topic, if you cannot take that; **don't even bother** asking for my opinion._
 
