@@ -2,9 +2,9 @@
 
 ೃ _You can call me __**Venus**__ or __**Noir**__... or whatever floats your boat. You can call me clock woman for what I care lmfao_ ⋆·˚ 
 
-*₊˚ _I'm really easy-going and most of the time really friendly, I do not bite; feel free to interact with me if you want or wish to. Although, keep in mind that energy is something I often don't have... exceptions are made when I'm with my dearest. Just not really confident on myself, the only moment I ever gain a grain of confidence or related; it's when I'm with [her](https:github.com/CiviIizations)._ ⋆*:
+*₊˚ _I'm really easy-going and most of the time really friendly, I do not bite; feel free to interact with me if you want or wish to. Although, keep in mind that energy is something I often don't have... exceptions are made when I'm with my dearest. Just not really confident on myself, the only moment I ever gain a grain of confidence or related; it's when I'm with [her](https://github.com/CiviIizations)._ ⋆*:
 
-─ _“ It's [you](https:github.com/CiviIizations) and **me**. ” ✦_
+─ _“ It's [you](https://github.com/CiviIizations) and **me**. ” ✦_
 
 <img src="https://github.com/user-attachments/assets/b63e2dfd-bbaa-4c41-86c7-94b7d2fb8da4" width="550" height="350" />
 
