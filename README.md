@@ -20,11 +20,11 @@
 
 ### ﹤ DAYDREAM — ENDING ﹥
 
-🌨️ ,, **" No matter what has happened, no matter what you've done, no matter what you do... I will always love [you](https://github.com/CiviIizations). I swear it."** Sometimes it feels like I'm dreaming due to ending up with someone so amazing as her. As for you, reader; please let me have my moment. My entire personality is based on loving my [girlfriend](https://github.com/CiviIizations).../silly
+🌨️ ,, **" No matter what has happened, no matter what you've done, no matter what you do... I will always love [you](https://github.com/CiviIizations). I swear it."** Sometimes it feels like I'm dreaming due to ending up with someone so amazing as her. As for you, reader; please let me have my moment. My entire personality is based on loving my [girlfriend](https://github.com/CiviIizations)... please be nice n'thoughtful with her, she's still very much soft n'delicate!!/gen
 
 🔎 ,, _If you ever find yourself having any type of problem or conflict with a **friend** of mine I'd like to kindly remind you that it's between **YOU** and **THEM**. Do not involve me in your conflict, I might be their friend but I am not associated with your conflict or whatever may be going on. While I understand you may be **frustrated** or **bothered**, I'm not the right person to approach; you can solve it yourself. One other thing I'd like to ask is to not involve me or anyone in any type of drama; I'm a really isolated person and don't really want to deal with that kind of stuff. Thank you._
 
-⏰ _**Cuddle** + **Hide** is fine unless I'm with my [beloved](https://github.com/CiviIizations). She comes first and always will. ._
+⏰ _**Cuddle** + **Hide** is fine unless I'm with my [beloved](https://github.com/CiviIizations). She comes first and always will, prioritizing my comfort the most after all. ._
 ###  ——— Sʜᴇ ʀᴇᴀᴄʜᴇᴅ ғᴏʀ ᴛʜᴇ sᴛᴀʀs ᴡɪᴛʜ ʙʀᴏᴋᴇɴ ʜᴀɴᴅs, ʙᴜɪʟᴛ ᴡᴏɴᴅᴇʀs ᴏɴ ʀᴜɪɴs, ᴀɴᴅ ᴡᴇᴘᴛ ᴀs ᴛʜᴇʏ ғᴇʟʟ. I ᴡᴀʟᴋᴇᴅ ʙᴇsɪᴅᴇ ʜᴇʀ—ϙᴜɪᴇᴛʟʏ ᴍᴇɴᴅɪɴɢ, ɢᴇɴᴛʟʏ ʜᴏʟᴅɪɴɢ, ʟᴏᴠɪɴɢ ʜᴇʀ ᴡɪᴛʜ ᴇᴠᴇʀʏ sᴛᴇᴘ ғᴏʀᴡᴀʀᴅ. ——— 
 ![image](https://github.com/user-attachments/assets/a76719bc-97f7-4e3c-a528-5c38d080ad3a)
 
