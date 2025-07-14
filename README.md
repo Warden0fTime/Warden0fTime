@@ -2,7 +2,7 @@
 
 ೃ _You can call me __**Venus**__ or __**Noir**__... or whatever floats your boat. You can call me clock woman for what I care lmfao_ ⋆·˚ 
 
-*₊˚ _I'm really easy-going and most of the time really friendly, I do not bite; feel free to interact with me if you want or wish to. Although, keep in mind that energy is something I often don't have... exceptions are made when I'm with my dearest. Just not really confident on myself, the only moment I ever gain a grain of confidence or related; it's when I'm with [her](https://github.com/CiviIizations)._ ⋆*:
+*₊˚ _I'm really easy-going and most of the time really friendly, I do not bite; feel free to interact with me if you want or wish to. Keep in mind that energy is something I often don't have... exceptions are made when I'm with my dearest. Just not really confident on myself, the only moment I ever gain a grain of confidence or related; it's when I'm with [her](https://github.com/CiviIizations)._ ⋆*:
 
 ─ _“ It's [you](https://github.com/CiviIizations) and **me**. ” ✦_
 
@@ -11,9 +11,9 @@
 
 
 ### ﹤OVERALL + BYI & DNI﹥
-— ⚙️ ,, _There's a lot of games that I like, lots of animes that I'm absolutely in-love with. Just ask me, if you see me using a certain cosplay of some certain character of a fandom, it's very likely that I'm a member myself. Give it a shot, not too hard. For music taste; I listen to anything that sounds nice I guess. I also really like blackjack n'related games, time is somethign that I don't really got a tight grip on so I barely notice when it's getting late._
+— ⚙️ ,, _There's a lot of games that I like, lots of animes that I'm absolutely in-love with. Just ask me, if you see me using a certain cosplay of some certain character of a fandom, it's very likely that I'm a member myself. Give it a shot, not too hard. For music taste; I listen to anything that sounds nice I guess. I also really like blackjack n'related games, time is something that I don't really got a tight grip on so I barely notice when it's getting late._
 
-— ⌛ ,, _I'm a **very introverted** person and tend not to be very verbal. I enjoy a lot a **mutual-silence and short-talks from time to time**; I can and will have **sudden mood changes depending on the day or whatever is going on with my life**. One thing to **keep in mind** is that I often **match your energy**, whenether that's a good or bad thing it **depends entirely on you**. If you're looking for a friend who's usually just on their own n'will listen to you whenever you need that someone, I'll gladly say that I'm exactly that type of friend. **Keep in mind** that I also **do not sugarcoat stuff**, I **hate dishonesty** and I'll be **very much sincere** regardless of what's the topic, if you cannot take that; **don't even bother** asking for my opinion. Although I look like a "strong" person, I promise you that I'm not. I tend to overthink and be really pessimistic and I notice changes really quickly, it'll cause me to be more distant._
+— ⌛ ,, _I'm a **very introverted** person and tend not to be very verbal. I enjoy a lot a **mutual-silence and short-talks from time to time**; I can and will have **sudden mood changes depending on the day or whatever is going on with my life**. One thing to **keep in mind** is that I often **match your energy**, whenether that's a good or bad thing it **depends entirely on you**. If you're looking for a friend who's usually just on their own n'will listen to you whenever you need that someone, I'll gladly say that I'm exactly that type of friend. **Keep in mind** that I also **do not sugarcoat stuff**, I **hate dishonesty** and I'll be **very much sincere** regardless of what's the topic, if you cannot take that; **don't even bother** asking for my opinion. Although I look like a "strong" person, I promise you that I'm not. I tend to overthink and be really pessimistic and I notice changes really quickly, it'll cause me to be more distant... I'd go as far to say that I'm not a really good friend to have overall._
 
 —⚠️ ,, _Basic DNI Criteria and that's pretty much it... for the rest, I **hide + block freely**. Just don't be a jerk and we'll be fine._
 
