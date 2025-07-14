@@ -6,7 +6,7 @@
 
 ─ _“ It's [you](https://github.com/CiviIizations) and **me**. ” ✦_
 
-<img src="https://github.com/user-attachments/assets/b63e2dfd-bbaa-4c41-86c7-94b7d2fb8da4" width="550" height="350" />
+<img src="https://github.com/user-attachments/assets/b63e2dfd-bbaa-4c41-86c7-94b7d2fb8da4" width="550" height="440" />
 
 
 
