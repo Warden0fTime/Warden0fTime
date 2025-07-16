@@ -2,7 +2,7 @@
 
 ೃ ___You can call me **Venus**... or **Noir**. Whichever suits the mood. I respond to both, eventually.___ ⋆·˚ 
 
-*₊˚ * _I’m pretty easy-going, really. I’m friendly!! Promise I don’t bite. So if you ever feel like interacting, go ahead. I probably won’t have the energy to start something myself, but… you’re welcome to. Energy isn’t exactly something I have in abundance. That said, there are... rare exceptions. When I’m with someone dear to me? It’s like I temporarily download a new personality patch. Confidence? Yeah, not really my strong suit. But somehow, when I’m with my [girlfriend](https://github.com/CiviIizations), it’s the only time I feel like I’m actually okay—like I can breathe a little easier. I know that probably sounds overly dramatic, but... that’s just how I’m wired._ ₊˚
+*₊˚ * _I’m pretty easy-going, really. I’m friendly!! Promise I don’t bite. So if you ever feel like interacting, go ahead. I probably won’t have the energy to start something myself, but… you’re welcome to. Energy isn’t exactly something I have in abundance. That said, there are... rare exceptions. When I’m with someone dear to me? It’s like I temporarily download a new personality patch._ ₊˚
 
 ─ _“ It's [you](https://github.com/CiviIizations) and **me**. ” ✦_
 
@@ -11,12 +11,11 @@
 
 
 ### ﹤OVERALL + BYI & DNI﹥
-— ⚙️ ,, *_There are a lot of games I enjoy, and more anime than I can count that I’m completely obsessed with. If you ever catch me cosplaying someone from a fandom... chances are, I’m already deep in it. Just ask; it’s not that hard to figure out. As for music? I don’t really stick to one genre. If it sounds good, I’ll probably vibe with it. Simple as that. Also... I have a bit of a thing for blackjack and games like that. Kind of fun playing with chance, you know?
-And time? Yeah... let’s just say I don’t really keep track of it very well. I blink, and suddenly it’s 3AM. Timekeeper irony, I know._*
+— ⚙️ ,, *_There are a lot of games I enjoy, and more anime than I can count that I’m completely obsessed with. If you ever catch me cosplaying someone from a fandom... chances are, I’m already deep in it. Just ask; it’s not that hard to figure out. I have a bit of a thing for blackjack and games like that. Kind of fun playing with chance, you know. And time? Yeah... let’s just say I don’t really keep track of it very well. I blink, and suddenly it’s 3AM. Timekeeper irony, I know._*
 
-— ⌛ ,, *_I’m a pretty introverted person, to be honest. I don’t really talk much—listening is more my thing. I like the quiet... it’s where I feel most like myself. I know I can come off as a bit weird, maybe even cold, but it’s more like... I wear a tough mask because, well, I’m not exactly the strongest person emotionally. Some things are just hard for me to handle. But hey, despite all that, I promise I’m not that bad to be around. I like to think I have a solid personality... give or take a few existential crises. So if you’re okay with a little silence, I think we’ll get along just fine_*
+— ⌛ ,, *_I’m a pretty introverted person, to be honest. I don’t really talk much, listening is more my thing. I like the quiet... it’s where I feel most like myself. But hey, despite that, I promise I’m not that bad to be around. I like to think I have a solid personality... give or take a few existential crises. So if you’re okay with a little silence, I think we’ll get along just fine._*
 
-—⚠️ ,, _Basic DNI Criteria and that's pretty much it... for the rest, I **hide + block freely**. Just don't be a jerk and we'll be fine._
+—⚠️ ,, _Basic DNI Criteria and that's pretty much it... for the rest, I **hide + block freely**._
 
 ### ﹤ DAYDREAM — ENDING ﹥
 
@@ -25,9 +24,9 @@ And time? Yeah... let’s just say I don’t really keep track of it very well. 
 ,,
 
 
-🔎 ,, *_If something ever happens between you and a friend of mine, I kindly ask that you handle it directly with them. I may know them, I may even care about them, but your conflict isn’t mine to manage. I’m not the middle ground, nor the messenger. I understand if you're upset or feel the need to vent, but I’m not the right person for that. I tend to keep to myself for a reason... peace is a luxury I’d like to keep. Please don’t pull me or anyone else into drama. I’d rather remain on the sidelines, quietly watching the timeline unfold... from a distance. Thanks._*
+🔎 ,, *_If something ever happens between you and a friend of mine, I kindly ask that you handle it directly with them. I may know them, but your conflict isn’t mine to manage. I’m not the middle ground, nor the messenger. I understand if you're upset or feel the need to vent, but I’m not the right person for that. I tend to keep to myself for a reason... peace is a luxury I’d like to keep. Please don’t pull me or anyone else into drama. I’d rather remain on the sidelines, quietly watching the timeline unfold... from a distance. Thanks._*
 
-⏰ _Cuddle + Hide are fine by me… unless I’m with my [beloved](ttps://github.com/CiviIizations) she comes first, always. She’s the one who really looks after my comfort, so if you're thinking of joining a potential cuddle pile, you might want to ask her first. If she’s okay with it, I won’t complain. Also, just a heads-up: I tend to go non-verbal a lot. If I suddenly go quiet, it’s not you—I probably just ran out of words for the day. It happens. Time's weird like that._
+⏰ _Cuddle + Hide are fine by me… unless I’m with my [beloved](ttps://github.com/CiviIizations) she comes first, always. She’s the one who really looks after my comfort, so if you're thinking of joining a potential cuddle pile, you might want to ask her first. If she’s okay with it, I won’t complain. Also, just a heads-up: I tend to go non-verbal a lot. If I suddenly go quiet, it’s not you. I probably just ran out of words for the day. It happens. Time's weird like that._
 ###  ——— Sʜᴇ ʀᴇᴀᴄʜᴇᴅ ғᴏʀ ᴛʜᴇ sᴛᴀʀs ᴡɪᴛʜ ʙʀᴏᴋᴇɴ ʜᴀɴᴅs, ʙᴜɪʟᴛ ᴡᴏɴᴅᴇʀs ᴏɴ ʀᴜɪɴs, ᴀɴᴅ ᴡᴇᴘᴛ ᴀs ᴛʜᴇʏ ғᴇʟʟ. I ᴡᴀʟᴋᴇᴅ ʙᴇsɪᴅᴇ ʜᴇʀ—ϙᴜɪᴇᴛʟʏ ᴍᴇɴᴅɪɴɢ, ɢᴇɴᴛʟʏ ʜᴏʟᴅɪɴɢ, ʟᴏᴠɪɴɢ ʜᴇʀ ᴡɪᴛʜ ᴇᴠᴇʀʏ sᴛᴇᴘ ғᴏʀᴡᴀʀᴅ. ——— 
 <h5 align="center">
 
