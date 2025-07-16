@@ -11,7 +11,7 @@
 
 
 ### ﹤OVERALL + BYI & DNI﹥
-— ⚙️ ,, *_There are a lot of games I enjoy, and more anime than I can count that I’m completely obsessed with. If you ever catch me cosplaying someone from a fandom... chances are, I’m already deep in it. Just ask; it’s not that hard to figure out. I have a bit of a thing for blackjack and games like that. Kind of fun playing with chance, you know. And time? Yeah... let’s just say I don’t really keep track of it very well. I blink, and suddenly it’s 3AM. Timekeeper irony, I know._*
+— ⚙️ ,, *_There are a lot of games I enjoy, and more anime than I can count that I’m completely obsessed with. If you ever catch me cosplaying a character from a fandom... chances are, I’m already deep in it. Just ask; it’s not that hard to figure out... Oh by the way, don't depend on me for time stuff. Yeah... let’s just say I don’t really keep track of it very well. I blink, and suddenly it’s 3AM. Timekeeper irony, I know._*
 
 — ⌛ ,, *_I’m a pretty introverted person, to be honest. I don’t really talk much, listening is more my thing. I like the quiet... it’s where I feel most like myself. But hey, despite that, I promise I’m not that bad to be around. I like to think I have a solid personality... give or take a few existential crises. So if you’re okay with a little silence, I think we’ll get along just fine._*
 
