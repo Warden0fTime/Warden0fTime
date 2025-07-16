@@ -25,5 +25,12 @@
 
 ⏰ _**Cuddle** + **Hide** is fine unless I'm with my [beloved](https://github.com/CiviIizations). She comes first and always will, prioritizing my comfort the most after all. Do ask her if you can join the soon-to-be cuddle pile, I won't mind if she says she's okay with it. I'm most non-verbal though, so don't mind if I suddenly go silent; I just ran out of topics. ._
 ###  ——— Sʜᴇ ʀᴇᴀᴄʜᴇᴅ ғᴏʀ ᴛʜᴇ sᴛᴀʀs ᴡɪᴛʜ ʙʀᴏᴋᴇɴ ʜᴀɴᴅs, ʙᴜɪʟᴛ ᴡᴏɴᴅᴇʀs ᴏɴ ʀᴜɪɴs, ᴀɴᴅ ᴡᴇᴘᴛ ᴀs ᴛʜᴇʏ ғᴇʟʟ. I ᴡᴀʟᴋᴇᴅ ʙᴇsɪᴅᴇ ʜᴇʀ—ϙᴜɪᴇᴛʟʏ ᴍᴇɴᴅɪɴɢ, ɢᴇɴᴛʟʏ ʜᴏʟᴅɪɴɢ, ʟᴏᴠɪɴɢ ʜᴇʀ ᴡɪᴛʜ ᴇᴠᴇʀʏ sᴛᴇᴘ ғᴏʀᴡᴀʀᴅ. ——— 
+<h5 align="center">
+
+  06/09/25 ,, My night has become a sunny dawn because of you. 💙
+  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤThe reasons of my smiles... are you. I love [you](https://github.com/CiviIizations). ㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤ
+
 ![image](https://github.com/user-attachments/assets/a76719bc-97f7-4e3c-a528-5c38d080ad3a)
 
