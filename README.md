@@ -15,7 +15,7 @@
 
 — ⌛ ,, *_I’m a pretty introverted person, to be honest. I don’t really talk much, listening is more my thing. I like the quiet... it’s where I feel most like myself. But hey, despite that, I promise I’m not that bad to be around. I like to think I have a solid personality... give or take a few existential crises. So if you’re okay with a little silence, I think we’ll get along just fine._*
 
-—⚠️ ,, _***HIDE + BLOCK** freely, specially freaks._
+—⚠️ ,, _**HIDE + BLOCK** freely, specially freaks._
 
 ### ﹤ DAYDREAM — ENDING ﹥
 
