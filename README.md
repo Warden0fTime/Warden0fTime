@@ -1,8 +1,8 @@
-## ——— ABOUT ME ——— ☂️
+## —— Warden of Time —— ☂️
 
-ೃ ___You can call me **Venus**... or **Noir**. Whichever suits the mood. I respond to both, eventually.___ ⋆·˚ 
+ೃ ___You can call me **Venus**... or **Maelis**. Whichever suits the mood. I respond to both, eventually.___ ⋆·˚ 
 
-*₊˚ * _I’m pretty easy-going, really. I’m friendly!! Promise I don’t bite. So if you ever feel like interacting, go ahead. I probably won’t have the energy to start something myself, but… you’re welcome to. Energy isn’t exactly something I have in abundance. That said, there are... rare exceptions._ ₊˚
+*₊˚ * _I’m pretty easy-going, really. I’m friendly!! Promise I don’t bite. So if you ever feel like interacting, go ahead. I probably won’t have the energy to start something myself, but… you’re welcome to. Energy isn’t exactly something I have in abundance._ ₊˚
 
 ─ _“ It's [you](https://github.com/CiviIizations) and **me**. ” ✦_
 
@@ -15,24 +15,19 @@
 
 — ⌛ ,, *_I’m a pretty introverted person, to be honest. I don’t really talk much, listening is more my thing. I like the quiet... it’s where I feel most like myself. But hey, despite that, I promise I’m not that bad to be around. I like to think I have a solid personality... give or take a few existential crises. So if you’re okay with a little silence, I think we’ll get along just fine._*
 
-—⚠️ ,, _Basic DNI Criteria and that's pretty much it... for the rest, I **hide + block freely**._
+—⚠️ ,, _***HIDE + BLOCK** freely, specially freaks._
 
 ### ﹤ DAYDREAM — ENDING ﹥
-
-🌨️ ,, **" No matter what has happened, no matter what you've done, no matter what you do... I will always love [you](https://github.com/CiviIizations). I swear it."** _You’ll probably notice I mention her a lot. If you ever come across her through my GitHub, I just ask that you treat her kindly—and gently. She’s incredibly sweet... thoughtful in ways most people don’t notice at first. The kind of person you’re lucky to have around. So please, be good to her._
-
-,,
-
 
 🔎 ,, *_If something ever happens between you and a friend of mine, I kindly ask that you handle it directly with them. I may know them, but your conflict isn’t mine to manage. I’m not the middle ground, nor the messenger. I understand if you're upset or feel the need to vent, but I’m not the right person for that. I tend to keep to myself for a reason... peace is a luxury I’d like to keep. Please don’t pull me or anyone else into drama. I’d rather remain on the sidelines, quietly watching the timeline unfold... from a distance. Thanks._*
 
 ⏰ _**Cuddle + Hide** are fine by me… unless I’m with my [beloved](ttps://github.com/CiviIizations). She comes first, always. She’s the one who really looks after my comfort, so if you're thinking of joining a potential cuddle pile, you might want to ask her first. If she’s okay with it, I won’t complain. Also, just a heads-up: I tend to go non-verbal a lot. If I suddenly go quiet, it’s **not you**. I probably just ran out of words for the day. It happens. **Time's** weird like that._
-###  ——— Sʜᴇ ʀᴇᴀᴄʜᴇᴅ ғᴏʀ ᴛʜᴇ sᴛᴀʀs ᴡɪᴛʜ ʙʀᴏᴋᴇɴ ʜᴀɴᴅs, ʙᴜɪʟᴛ ᴡᴏɴᴅᴇʀs ᴏɴ ʀᴜɪɴs, ᴀɴᴅ ᴡᴇᴘᴛ ᴀs ᴛʜᴇʏ ғᴇʟʟ. I ᴡᴀʟᴋᴇᴅ ʙᴇsɪᴅᴇ ʜᴇʀ—ϙᴜɪᴇᴛʟʏ ᴍᴇɴᴅɪɴɢ, ɢᴇɴᴛʟʏ ʜᴏʟᴅɪɴɢ, ʟᴏᴠɪɴɢ ʜᴇʀ ᴡɪᴛʜ ᴇᴠᴇʀʏ sᴛᴇᴘ ғᴏʀᴡᴀʀᴅ. ——— 
+###  —— Sʜᴇ ʀᴇᴀᴄʜᴇᴅ ғᴏʀ ᴛʜᴇ sᴛᴀʀs ᴡɪᴛʜ ʙʀᴏᴋᴇɴ ʜᴀɴᴅs, ʙᴜɪʟᴛ ᴡᴏɴᴅᴇʀs ᴏɴ ʀᴜɪɴs, ᴀɴᴅ ᴡᴇᴘᴛ ᴀs ᴛʜᴇʏ ғᴇʟʟ. I ᴡᴀʟᴋᴇᴅ ʙᴇsɪᴅᴇ ʜᴇʀ—ϙᴜɪᴇᴛʟʏ ᴍᴇɴᴅɪɴɢ, ɢᴇɴᴛʟʏ ʜᴏʟᴅɪɴɢ, ʟᴏᴠɪɴɢ ʜᴇʀ ᴡɪᴛʜ ᴇᴠᴇʀʏ sᴛᴇᴘ ғᴏʀᴡᴀʀᴅ. —— 
 <h5 align="center">
 
   06/09/25 ,, My night has become a sunny dawn because of you. 💙
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFor once, I don’t want to rewind or fast-forward. I just want **now** with [you.](https://github.com/CiviIizations). ㅤㅤㅤㅤㅤㅤㅤㅤ
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFor once, I don’t want to rewind or fast-forward. I just want **now** with [you.](https://github.com/CiviIizations) ㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ![image](https://github.com/user-attachments/assets/a76719bc-97f7-4e3c-a528-5c38d080ad3a)
