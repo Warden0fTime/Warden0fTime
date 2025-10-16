@@ -1,8 +1,8 @@
-## — Warden of Time — ☂️
+## — Warden of Time 
 
-ೃ ___You can call me **Venus**... or **Maelis**. Whichever suits the mood. I respond to both, eventually.___ ⋆·˚ 
+ೃ __You can call me **Venus**... or **Maelis**. Whichever suits the mood. I respond to both, eventually.__ ⋆·˚ 
 
-*₊˚ * _I’m pretty easy-going, really. I’m friendly!! Promise I don’t bite. So if you ever feel like interacting, go ahead. I probably won’t have the energy to start something myself, but… you’re welcome to. Energy isn’t exactly something I have in abundance._ ₊˚
+*₊˚ * _I’m pretty easy-going, really. I’m friendly!! I promise I don’t bite. So if you ever feel like interacting, go ahead. I probably won’t have the energy to start something myself, but… you’re welcome to. Energy isn’t exactly something I have in abundance._ ₊˚
 
 ─ _“ It's [you](https://github.com/CiviIizations) and **me**. ” ✦_
 
@@ -10,16 +10,14 @@
 
 
 
-### ﹤OVERALL + BYI & DNI﹥
-— ⚙️ ,, *_There are a lot of games I enjoy, and more anime than I can count that I’m completely obsessed with. If you ever catch me cosplaying a character from a fandom... chances are, I’m already deep in it. Just ask; it’s not that hard to figure out... Oh by the way, don't depend on me for time stuff. Yeah... let’s just say I don’t really keep track of it very well. I blink, and suddenly it’s 3AM. Timekeeper irony, I know._*
+### ﹤INTERESTS + BYI & DNI﹥
+— ⚙️ ,, *_Project Sekai, HoloLive, Limbus Company, Roblox, Muse Dash, Touhou, VRChat, Library of Ruina, Omori, UmaMusume... those are one of many of my interests, you can ask me for more._*
 
 — ⌛ ,, *_I’m a pretty introverted person, to be honest. I don’t really talk much, listening is more my thing. I like the quiet... it’s where I feel most like myself. But hey, despite that, I promise I’m not that bad to be around. I like to think I have a solid personality... give or take a few existential crises. So if you’re okay with a little silence, I think we’ll get along just fine._*
 
-—⚠️ ,, _**HIDE + BLOCK** freely, specially freaks._
+—⚠️ ,, _I **BLOCK** + **HIDE** freely, specially if you're covering me in any way; not limited to spamming or such._
 
-### ﹤ DAYDREAM — ENDING ﹥
-
-🔎 ,, *_If something ever happens between you and a friend of mine, I kindly ask that you handle it directly with them. I may know them, but your conflict isn’t mine to manage. I’m not the middle ground, nor the messenger. I understand if you're upset or feel the need to vent, but I’m not the right person for that. I tend to keep to myself for a reason... peace is a luxury I’d like to keep. Please don’t pull me or anyone else into drama. I’d rather remain on the sidelines, quietly watching the timeline unfold... from a distance. Thanks._*
+### < ENDING ﹥
 
 ⏰ _**Cuddle + Hide** are fine by me… unless I’m with my [beloved](ttps://github.com/CiviIizations). She comes first, always. She’s the one who really looks after my comfort, so if you're thinking of joining a potential cuddle pile, you might want to ask her first. If she’s okay with it, I won’t complain. Also, just a heads-up: I tend to go non-verbal a lot. If I suddenly go quiet, it’s **not you**. I probably just ran out of words for the day. It happens. **Time's** weird like that._
 ###  — Sʜᴇ ʀᴇᴀᴄʜᴇᴅ ғᴏʀ ᴛʜᴇ sᴛᴀʀs ᴡɪᴛʜ ʙʀᴏᴋᴇɴ ʜᴀɴᴅs, ʙᴜɪʟᴛ ᴡᴏɴᴅᴇʀs ᴏɴ ʀᴜɪɴs, ᴀɴᴅ ᴡᴇᴘᴛ ᴀs ᴛʜᴇʏ ғᴇʟʟ. I ᴡᴀʟᴋᴇᴅ ʙᴇsɪᴅᴇ ʜᴇʀ—ϙᴜɪᴇᴛʟʏ ᴍᴇɴᴅɪɴɢ, ɢᴇɴᴛʟʏ ʜᴏʟᴅɪɴɢ, ʟᴏᴠɪɴɢ ʜᴇʀ ᴡɪᴛʜ ᴇᴠᴇʀʏ sᴛᴇᴘ ғᴏʀᴡᴀʀᴅ. — 
