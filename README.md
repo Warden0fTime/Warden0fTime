@@ -4,7 +4,7 @@
 
 *₊˚ * _I’m pretty easy-going, really. I’m friendly!! I promise I don’t bite. So if you ever feel like interacting, go ahead. I probably won’t have the energy to start something myself, but… you’re welcome to. Energy isn’t exactly something I have in abundance._ ₊˚
 
-─ _“ It's [you](https://github.com/CiviIizations) and **me**. ” ✦_
+─ _“ It's [you](https://github.com/CiviIizations)... and me. You got this, baby. ” ✦_
 
 <img src="https://github.com/user-attachments/assets/b63e2dfd-bbaa-4c41-86c7-94b7d2fb8da4" width="550" height="440" />
 
