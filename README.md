@@ -10,7 +10,7 @@
 
 
 
-### ﹤INTERESTS + BYI & DNI﹥
+### ﹤ ^-^ ﹥
 — ⚙️ ,, *_Project Sekai, HoloLive, Limbus Company, Roblox, Muse Dash, Touhou, VRChat, Library of Ruina, Omori, UmaMusume... those are one of many of my interests, you can ask me for more._*
 
 — ⌛ ,, *_I’m a pretty introverted person, to be honest. I don’t really talk much, listening is more my thing. I like the quiet... it’s where I feel most like myself. But hey, despite that, I promise I’m not that bad to be around. I like to think I have a solid personality... give or take a few existential crises. So if you’re okay with a little silence, I think we’ll get along just fine._*
