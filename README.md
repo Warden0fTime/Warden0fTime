@@ -20,7 +20,7 @@
 ### < ENDING ﹥
 
 ⏰ _**Cuddle + Hide** are fine by me… unless I’m with my [beloved](ttps://github.com/CiviIizations). She comes first, always. She’s the one who really looks after my comfort, so if you're thinking of joining a potential cuddle pile, you might want to ask her first. If she’s okay with it, I won’t complain. Also, just a heads-up: I tend to go non-verbal a lot. If I suddenly go quiet, it’s **not you**. I probably just ran out of words for the day. It happens. **Time's** weird like that._
-###  — Sʜᴇ ʀᴇᴀᴄʜᴇᴅ ғᴏʀ ᴛʜᴇ sᴛᴀʀs ᴡɪᴛʜ ʙʀᴏᴋᴇɴ ʜᴀɴᴅs, ʙᴜɪʟᴛ ᴡᴏɴᴅᴇʀs ᴏɴ ʀᴜɪɴs, ᴀɴᴅ ᴡᴇᴘᴛ ᴀs ᴛʜᴇʏ ғᴇʟʟ. I ᴡᴀʟᴋᴇᴅ ʙᴇsɪᴅᴇ ʜᴇʀ—ϙᴜɪᴇᴛʟʏ ᴍᴇɴᴅɪɴɢ, ɢᴇɴᴛʟʏ ʜᴏʟᴅɪɴɢ, ʟᴏᴠɪɴɢ ʜᴇʀ ᴡɪᴛʜ ᴇᴠᴇʀʏ sᴛᴇᴘ ғᴏʀᴡᴀʀᴅ. — 
+###  — Till'my last heartbeat. — 
 <h5 align="center">
 
   06/09/25 ,, My night has become a sunny dawn because of you. 💙
